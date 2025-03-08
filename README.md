@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hermisery
+- 👀 I’m interested in cooking
+- 🌱 I’m currently learning culinary arts
